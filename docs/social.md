@@ -5,3 +5,4 @@
 - Instagram: [Fiiremonky](https://www.instagram.com/fiiremonky)
 - Youtube: [Fire_Monky](https://www.youtube.com/channel/UC5sxheaX5L5wFsFP6MwQDMA)
 - Tiktok: [@fiiremonky](https://www.tiktok.com/@fiiremonky)
+- Discord: [FireMonky Channel](https://discord.com/invite/tYjuDEF)
