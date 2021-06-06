@@ -35,6 +35,8 @@ Se acordará con el ganador alguna manera para recibir el premio, ya sea como ta
 
 Las tarjetas de nintendo pueden ser de eshop o nintendo online, pero dependerá de disponibilidad en las tiendas. Se tratará de conseguir la tarjeta deseada por el ganador.
 
+Las tarjetas de nintendo serán conseguidas en México. Debes asegurarte que sean compatibles con el país de origen de tu cuenta de nintendo o tener una manera de reclamar el premio.
+
 El premio de los 2 sorteos equivale a 200 pesos mexicanos, quien entre al sorteo debe tener alguna manera de reclamarlo. En caso de que no sea posible, se va a sacar a otro ganador.
 
 El ganador tiene 3 días máximo para confirmar que está interesado en recibir el premio por uno de los medios ya establecidos.
